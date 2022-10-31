@@ -5,3 +5,5 @@ Fivem Ready just drag and drop
 Make sure to ensure in CFG
 
 Wanna see more go to https://discord.gg/FbQsJspYxn
+
+https://cdn.discordapp.com/attachments/993266309297086574/1036564071190900756/unknown.png
